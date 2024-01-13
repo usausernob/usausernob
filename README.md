@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @usausernob
+- 👀 I’m interested in web programming
+- 🌱 I’m currently learning php
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: fuck lgbt
